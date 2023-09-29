@@ -1,0 +1,1 @@
+# 8-sinif-inkilap-t-brans-denemeler-32
